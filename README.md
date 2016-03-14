@@ -1,1 +1,1 @@
-Welcome to dota2blog
+DOTA2 HEROES
